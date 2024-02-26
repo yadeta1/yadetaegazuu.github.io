@@ -1,0 +1,1 @@
+# yadetaegazuu.github.io
